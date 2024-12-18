@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/031976ea-90b6-441c-96f8-fa671b14ba88)
 ***
-✧— **M**Y B**O**UN*D*AR*I*E*S* .୨୧
+✧— **M**Y B**O**UN*D*AR*I*E*Z* .୨୧
 ***
 ⌢  ⟢┊Yez plz!!
 * cuddling
