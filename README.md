@@ -7,11 +7,12 @@
 * kizzing (/p only)
 * POZITIVE ranting
 
+***
 
 ⌢  ⟢┊Eh... azk plz...
 * venting  /  NEG ranting (im NOT good at comforting)
 
-
+***
 
 
 ⌢  ⟢┊No.
