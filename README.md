@@ -1,21 +1,20 @@
 ![image](https://i.postimg.cc/pLkk2HQz/tenor.gif)
 ***
-✧— **M**Y B**O**UN*D*AR*I*E*Z* .୨୧
+✧— **M**Y B**O**UN*D*AR*I*E*S* .୨୧
 ***
-⌢  ⟢┊Yez plz!!
+⌢  ⟢┊Yez please!!
 * cuddling
-* kizzing (/p only)
-* POZITIVE ranting
+* kissing (/p only)
+* POSITIVE ranting
 
 ***
 
-⌢  ⟢┊Eh... azk plz...
+⌢  ⟢┊Eh.
 * venting  /  NEG ranting (im NOT good at comforting)
 
 ***
 
 
 ⌢  ⟢┊No.
-* calling my typing quirk "Gnarpy Language" (Plz dont even mention gnarpy around me../zrz)
-* very controverzial jokez. (you're dizguzting.)
-***
+* Copying my skins. im fucking blocking you.
+
