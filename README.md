@@ -1,5 +1,2 @@
-![image](https://github.com/user-attachments/assets/1e1dcca5-e03e-4cc5-b04a-0a3e07ab023d)
+![Screenshot 2025-03-22 12 21 54 AM](https://github.com/user-attachments/assets/89fe81de-064a-4f1d-9747-ab5cf3a1f903)
 
-***
-
-IM FUNNY I SWEAR please talk to me
